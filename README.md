@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SpazyShotty
+- 👀 I’m interested in Sports!
+- 🌱 I’m currently learning History
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I Love to code
